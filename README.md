@@ -1,2 +1,7 @@
-# Judul-reposito
-Disini yang kayak saya buat, ss mi baru ketik ulang punya ku atau buat sendiri 
+PORTOFOLIO PRIBADI SAYA
+ KEAHLIAN:
+ TENTANG SAYA 
+ KEGIATAN PEDULI BUMI 
+ KAMPANYE DIGITAL 
+ AKSI NYATA 
+ KONTAK KALAU MAU
